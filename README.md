@@ -42,4 +42,4 @@
 
 ### 📫 Connect with Me
 - **LinkedIn:** [İsmail Musab Şimşek](https://www.linkedin.com/in/ismail-%C5%9Fim%C5%9Fek/)
-- **Email:** ismailmusabsimsek6@gmail.com
+- **Email:** ismus477@gmail.com
